@@ -1,2 +1,1 @@
-# BridgeDuel
-Script ✌️
+List of My Roblox Scripts ✌️
